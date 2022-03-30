@@ -1,1 +1,1 @@
-God is faithful
+Great God
